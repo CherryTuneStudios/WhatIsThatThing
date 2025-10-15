@@ -4,6 +4,8 @@
 
  SO much so that this "What i shat thing?" gave me the lols 
 
+ Link for contest (https://www.deviantart.com/darkearthdragon/art/1251526316?action=published)
+
  Current projects: 
  
 -WITT? Logic card game (95%) (awaiting launch date and preorders) 
